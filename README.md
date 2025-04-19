@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Hina<br>⚡ Fun fact Life is Boringgg<br>🔁 All Repos Are Private GG
+🔭 I’m currently working on Hina<br>⚡ Fun fact Life is Boringgg<br>🔁 All Repos Are Private GG 
 
 
 ## 🌐 Socials:
